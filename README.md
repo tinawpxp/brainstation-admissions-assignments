@@ -1,2 +1,0 @@
-# bs-javascriptassignment-
-# bs-javascriptassignment-
